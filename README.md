@@ -1,5 +1,7 @@
 # InfiniteWorlds_Site-32
 
+link to play: https://infiniteworlds.app/shared/pDkkPQ
+
 Mature
 content warnings: body horror, infection/disease, violence, gore, psychological horror, themes of mortality and human modification, isolation
 
